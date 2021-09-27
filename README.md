@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @JohnCselcuk
+# 👋 Hi, I’m @JohnSelcuk
 
 ### I'm a full time Husband and Father
 - 👀 I’m a carrier changer and trying to build my profession 
