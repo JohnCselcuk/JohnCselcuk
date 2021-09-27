@@ -1,6 +1,6 @@
-### 👋 Hi, I’m @JohnCselcuk
+# 👋 Hi, I’m @JohnCselcuk
 
-## I'm a full time Husband and Father
+### I'm a full time Husband and Father
 - 👀 I’m a carrier changer and trying to build my profession 
 - 🌱 I’m currently learning eveything :)...
 - 💞️ I’m looking to collaborate with other content creator
