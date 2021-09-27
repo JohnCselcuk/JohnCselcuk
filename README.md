@@ -4,6 +4,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning eveything :)...
 - 💞️ I’m looking to collaborate with other content creator
+- 2021-2022 Goals: To complete UNC Data Analytics Boot camp
 - Fun fact: I love soccer, ride bycycle and BBQ 
 
 ### 📫 How to reach me ...
