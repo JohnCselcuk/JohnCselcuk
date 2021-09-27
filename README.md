@@ -1,7 +1,7 @@
 ### 👋 Hi, I’m @JohnCselcuk
 
 ## I'm a full time Husband and Father
-- 👀 I’m interested in 
+- 👀 I’m a carrier changer and trying to build my profession 
 - 🌱 I’m currently learning eveything :)...
 - 💞️ I’m looking to collaborate with other content creator
 - 2021-2022 Goals: To complete UNC Data Analytics Boot camp
