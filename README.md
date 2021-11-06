@@ -9,7 +9,7 @@
 
 ### 📫 How to reach me ...
 
-https://www.linkedin.com/in/john-cihan-selcuk/
+https://www.linkedin.com/in/john-cihan-selcuk
 
 email; johnc.selcuk@gmail.com
 <!---
