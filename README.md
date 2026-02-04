@@ -11,7 +11,7 @@
 
 [Linkedin](https://www.linkedin.com/in/john-cihan-selcuk)
 
-[Twitter](https://twitter.com/cihan_john)
+
 
 email; johnc.selcuk@gmail.com
 <!---
